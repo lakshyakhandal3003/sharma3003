@@ -3,3 +3,6 @@
 Yhe mere first Repo. hai git ke
 <br>
 Author :- Lkashay SHarma
+LAkshay Khandal
+Sharma lmashya Kahndal 
+CEo && CTO On  Techlakshay.in.net S/w Company
